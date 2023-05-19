@@ -10,5 +10,5 @@
 - 🤔 I’m looking for help with everything you wanna teach me! I'm here to learn! :D
 - 💬 Ask me about whatever you wonder on mind, we can solve everything if we work in team
 - 📫 How to reach me: mirvazher02@gmail.com //
-- ⚡ Fun fact: you never forget libraries when you finally decided to use them... haha
+- ⚡ Fun fact: you never forget libraries when you finally decide to use them... haha
 
